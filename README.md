@@ -1,9 +1,1 @@
-- 👋 Hi, I’m Shelly !!
-- 👀 I’m interested in warrior cats, dandys world, mouth washing, fnaf, sweettooth, sanrio, kaiju paradise !!
-- 🌱 I’m currently learning how to draw better !
-- 💞️ I’m looking to collaborate on art, videos, discord servers !
-- 📫 How to reach me through tiktok, (lightning__draws), discord,(meoww_cats5), and roblox. (meoww_cats5)
-- 😄 Pronouns: they them, xem, xis, xer, ect.
-- ⚡ Fun fact: i love to yap ! please come int with me
-
-<!---
+heya !! im shelly !! you will most likely see me in my looey or finn skin, c + h is always welcome ! ppl please int with me, anythings fine ! my pronouns r they them, xir, xis, xem, ect. im super freaky when u get 2 know me, im really cool !! i mean, i love artifacts, bfdi, kaiju paradise, sanrio, dandys world, regretavator, fnaf, sonic, sprunki, warrior cats, sweettooth, FRUITCAKE DNI !!!!!!!!!!!!!!!!!!! uhh yea im #1 vee fan and the ceo of t-rex and sweet suprise ! im a multishipper, and i ship lots of rarepairs ! i also may be very rude sometimes, dont mind me ! i have anger issues, also if i have dni(do not interact) or dnt(do not touch) in my name, please respect it and dont troll please. im either overstimulated or greiving. my life has been a rollercoaster, my tia died, my dog died, i got a concussion, so its js been hard. but either way, still interact ! im usually happy and playful . oh, and please play dw with me ! im superr pro, i have some mains, floor 21 is my highest, and also friend my disc !!
